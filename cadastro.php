@@ -1,0 +1,1 @@
+Agora o nosso site está em fase de aprendizado mais futuramente estará 100%.
